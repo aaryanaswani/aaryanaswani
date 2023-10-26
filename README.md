@@ -1,6 +1,6 @@
 👨‍💻 Web Developer | Code Enthusiast | Problem Solver 🚀
 
-🌍 Exploring the digital universe one line of code at a time.
+🌍 Exploring the world of Cyber Sycurity.
 
 💡 Passionate about creating elegant solutions to complex problems.
 
